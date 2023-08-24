@@ -1,5 +1,3 @@
-Techniques for Collecting Data, Analyzing Results, and Using Feedback to Inform Future Strategies
-===========================================================
 
 Measuring and evaluating focus and concentration is essential to understanding our progress and making improvements. Here are some techniques for collecting data, analyzing results, and using feedback to inform future strategies:
 

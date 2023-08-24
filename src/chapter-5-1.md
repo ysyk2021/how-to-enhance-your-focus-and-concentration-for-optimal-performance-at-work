@@ -1,5 +1,3 @@
-Overview of Managing Time and Priorities in the Workplace
-===================================================================================================
 
 Effective time management is essential for enhancing focus and concentration in the workplace. In this chapter, we will discuss an overview of managing time and priorities in the workplace.
 

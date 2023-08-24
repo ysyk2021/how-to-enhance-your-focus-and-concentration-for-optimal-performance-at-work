@@ -1,5 +1,3 @@
-Strategies for Promoting Movement, Taking Breaks, and Managing Fatigue
-=============================================================
 
 Incorporating physical activity into daily routine is essential to enhancing focus and concentration in the workplace. However, it can be challenging to find time for movement during a busy workday. Here are some strategies for promoting movement, taking breaks, and managing fatigue:
 

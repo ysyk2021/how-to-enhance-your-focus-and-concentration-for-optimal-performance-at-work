@@ -1,5 +1,3 @@
-Strategies for Recognizing Triggers, Minimizing External Disruptions, and Managing Internal Distractions
-=====================================================
 
 Identifying distractions and interruptions is essential to enhancing focus and concentration in the workplace. Here are some strategies for recognizing triggers, minimizing external disruptions, and managing internal distractions:
 

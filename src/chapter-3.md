@@ -1,4 +1,3 @@
-# Chapter 3: Identifying Distractions and Interruptions
 
 One of the biggest challenges to maintaining focus and concentration in the workplace is the prevalence of distractions and interruptions. In this chapter, we will provide an overview of identifying these distractions and interruptions and discuss strategies for minimizing their impact on our productivity.
 

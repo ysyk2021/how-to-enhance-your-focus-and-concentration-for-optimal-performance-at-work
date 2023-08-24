@@ -1,5 +1,3 @@
-Importance of Managing Digital Devices and Information Overload in the Workplace
-============================================================
 
 In today's digital age, we have access to an overwhelming amount of information at our fingertips. While this can be a powerful tool for productivity, it can also lead to information overload and distract us from our work. Here's why managing digital devices and information overload is important in the workplace:
 

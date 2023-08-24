@@ -1,5 +1,3 @@
-Overview of Identifying Distractions and Interruptions in the Workplace
-==============================================================================================================================
 
 Distractions and interruptions can significantly hinder focus and concentration in the workplace. In this chapter, we'll explore the importance of identifying distractions and interruptions and provide an overview of common sources of distraction.
 

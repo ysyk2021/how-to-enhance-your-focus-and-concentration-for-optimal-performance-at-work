@@ -1,5 +1,3 @@
-Importance of Creating a Productive Work Environment in the Workplace
-=================================================
 
 A productive work environment is essential to achieving optimal performance in the workplace. It can help minimize distractions, reduce stress, and enhance focus and concentration. Here are some reasons why creating a productive work environment is important:
 

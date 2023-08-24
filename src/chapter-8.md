@@ -1,4 +1,3 @@
-# Chapter 8: Managing Digital Devices and Information Overload
 
 In today's digital age, managing digital devices and information overload is crucial for enhancing focus and concentration in the workplace. In this chapter, we will discuss the importance of managing digital devices and information overload in the workplace, as well as techniques and strategies for reducing screen time, managing notifications, and organizing digital files.
 

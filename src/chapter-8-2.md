@@ -1,5 +1,3 @@
-Techniques for Reducing Screen Time, Managing Notifications, and Organizing Digital Files
-=======================================================================================================================================================
 
 Digital devices and information overload can be significant distractions that hinder focus and concentration. In this chapter, we'll explore techniques for managing digital devices and information overload to enhance focus and concentration.
 

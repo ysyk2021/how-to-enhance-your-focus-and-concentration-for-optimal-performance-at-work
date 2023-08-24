@@ -1,5 +1,3 @@
-Creating a Roadmap for Enhancing Focus and Concentration for Optimal Performance at Work
-===================================================================================================================================================
 
 Enhancing focus and concentration for optimal performance at work requires commitment and dedication. In this chapter, we will discuss implementation strategies for lasting change, including creating a roadmap for success.
 

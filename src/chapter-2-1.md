@@ -1,5 +1,3 @@
-Definition of Focus and Concentration
-=======================================================================================
 
 To enhance focus and concentration, it's essential to first understand what these skills entail. In this chapter, we'll explore the definition of focus and concentration.
 

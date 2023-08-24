@@ -1,5 +1,3 @@
-Importance of Measuring and Evaluating Focus and Concentration
-===========================================================================================================================
 
 Measuring and evaluating focus and concentration is critical for achieving optimal performance at work. In this chapter, we'll explore the importance of measuring and evaluating focus and concentration.
 

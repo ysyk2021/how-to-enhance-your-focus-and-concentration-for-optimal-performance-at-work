@@ -1,4 +1,3 @@
-# Techniques for Optimizing Lighting, Temperature, and Ergonomics
 
 Creating a productive work environment is essential for enhancing focus and concentration in the workplace. In this chapter, we will discuss techniques for optimizing lighting, temperature, and ergonomics to promote productivity.
 

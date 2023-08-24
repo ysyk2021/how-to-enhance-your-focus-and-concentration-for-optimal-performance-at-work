@@ -1,5 +1,3 @@
-The Importance of Enhancing Focus and Concentration for Optimal Performance at Work
-============================================================================================================
 
 In today's fast-paced work environment, the ability to focus and concentrate is essential for achieving optimal performance. In this chapter, we'll explore the importance of enhancing focus and concentration for optimal performance at work.
 

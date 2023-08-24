@@ -1,5 +1,3 @@
-Importance of Practicing Mindfulness and Meditation in the Workplace
-================================================
 
 Practicing mindfulness and meditation can be a powerful way to enhance focus and concentration in the workplace. It can help reduce stress, improve mental clarity, and increase productivity. Here are some reasons why practicing mindfulness and meditation is important in the workplace:
 

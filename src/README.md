@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced work environment, it can be challenging to maintain focus and concentration. Distractions such as emails, phone calls, and social media can derail productivity and hinder performance. However, with the right strategies and techniques, anyone can enhance their focus and concentration for optimal performance at work.
 

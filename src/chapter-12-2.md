@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-======================================================================================================
 
 Implementing lasting change to enhance focus and concentration in the workplace requires commitment and dedication. In this chapter, we will discuss the importance of tracking progress and celebrating successes to maintain motivation and momentum.
 

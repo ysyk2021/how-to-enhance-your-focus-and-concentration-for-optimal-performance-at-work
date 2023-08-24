@@ -1,4 +1,3 @@
-# Overview of incorporating physical activity into daily routine in the workplace
 
 Incorporating physical activity into your daily routine is an effective way to enhance focus, concentration, and overall well-being in the workplace. In this chapter, we will provide an overview of incorporating physical activity into daily routine in the workplace.
 
