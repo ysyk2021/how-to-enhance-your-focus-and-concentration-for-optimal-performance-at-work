@@ -1,5 +1,4 @@
-Chapter 16: Importance of Managing Digital Devices and Information Overload in the Workplace
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, managing digital devices and information overload has become increasingly important for enhancing focus and concentration at work. In this chapter, we will explore the significance of effectively managing digital devices and combating information overload in the workplace to promote optimal performance.
 

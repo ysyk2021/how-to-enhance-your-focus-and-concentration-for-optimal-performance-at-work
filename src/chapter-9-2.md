@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Collecting Data, Analyzing Results, and Using Feedback to Inform Future Strategies
-=============================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To continually improve your focus and concentration at work, it's essential to collect data, analyze the results, and use feedback to inform future strategies. In this chapter, we'll explore effective techniques for gathering relevant data, analyzing it, and utilizing feedback to develop and refine your focus-enhancing strategies.
 

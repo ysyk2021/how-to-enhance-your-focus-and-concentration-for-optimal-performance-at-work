@@ -1,5 +1,4 @@
-Chapter 11: Tracking Progress and Celebrating Successes
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to successfully enhance your focus and concentration levels at work, it's important to track your progress and celebrate your successes. In this chapter, we'll explore various methods for tracking your progress and implementing positive reinforcement to motivate you towards greater achievements.
 

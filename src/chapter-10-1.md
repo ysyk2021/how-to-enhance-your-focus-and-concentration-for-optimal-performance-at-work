@@ -1,5 +1,4 @@
-Chapter 10: Common Challenges in Enhancing Focus and Concentration
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Enhancing focus and concentration at work can be a challenging endeavor. In this chapter, we will explore common challenges that individuals face when trying to improve their focus and concentration levels. By understanding these challenges, you can better navigate through them and develop effective strategies to overcome them.
 

@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Overcoming Challenges
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Enhancing focus and concentration at work can be a challenging endeavor. In this chapter, we will explore effective strategies to overcome common obstacles that hinder optimal performance. By implementing these techniques, you can navigate through difficulties and maintain your focus towards achieving your goals.
 

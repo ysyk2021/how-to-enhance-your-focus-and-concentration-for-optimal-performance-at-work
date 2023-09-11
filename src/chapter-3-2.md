@@ -1,5 +1,4 @@
-Chapter: Strategies for Recognizing Triggers, Minimizing External Disruptions, and Managing Internal Distractions
-=================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

@@ -1,5 +1,4 @@
-Chapter 15: Techniques for Integrating Focus and Concentration Practices into Decision-making, Operations, and Governance
-=========================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating focus and concentration practices into company culture and practices is crucial for achieving optimal performance at work. In this chapter, we will explore techniques for integrating these practices into decision-making, operations, and governance, to ensure that they become an integral part of the organization's overall strategy.
 

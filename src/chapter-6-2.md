@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Cultivating Awareness, Reducing Stress, and Increasing Focus
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To achieve optimal performance at work, it is crucial to cultivate awareness, reduce stress, and enhance focus. In this chapter, we will explore various techniques that can help you improve these essential aspects of your professional life.
 
